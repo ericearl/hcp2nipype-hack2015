@@ -14,14 +14,14 @@ Glad Mihai, University of Greifswald, Germany, paulglad.mihai@uni-greifswald.de
 
 Luka Ruzic, Duke University, USA, luka.ruzic@duke.edu
 
-Nick Ketz, Univesity of Colorado Boulder, USA, nick.ketz@gmail.com
+Nick Ketz, University of Colorado Boulder, USA, nick.ketz@gmail.com
 
-Andrew Reineberg, Univesity of Colorado Boulder, USA, andrew.reineberg@colorado.edu
+Andrew Reineberg, University of Colorado Boulder, USA, andrew.reineberg@colorado.edu
 
 Marianne Reddan, University of Colorado, Boulder, USA, marianne.reddan@colorado.edu
 
-Al Goddings
+Anne-Lise Goddings, University College London, United Kingdom, algoddings@doctors.org.uk
 
-Javier Gonzalez
+Javier Gonzalez-Castillo, National Institute of Mental Health, USA, javier.gonzalez-castillo@nih.gov
 
-Chris Gorgolewski, Stanford University, chrisgor@stanford.edu
+Chris Gorgolewski, Stanford University, USA, chrisgor@stanford.edu
