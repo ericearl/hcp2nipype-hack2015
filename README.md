@@ -14,9 +14,9 @@ Glad Mihai, University of Greifswald, Germany, paulglad.mihai@uni-greifswald.de
 
 Luka Ruzic
 
-Nick Ketz
+Nick Ketz, Univesity of Colorado Boulder, USA, nick.ketz@gmail.com
 
-Andrew Reineberg
+Andrew Reineberg, Univesity of Colorado Boulder, USA, andrew.reineberg@colorado.edu
 
 Marianne
 
