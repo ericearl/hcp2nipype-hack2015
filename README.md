@@ -10,18 +10,16 @@ Damion Demeter, Oregon Health & Science University, demeter@ohsu.edu
 
 Kate Mills, Oregon Health & Science University, millska@ohsu.edu
 
-glad@posteo.de
+Glad
 
-luka.ruzic@duke.edu
+Luka Ruzic
 
-nick.ketz@gmail.com
+Nick Ketz
 
-andrew.reineberg@colorado.edu
+Andrew Reineberg
 
-marianne.reddan@colorado.edu
+Marianne
 
-algoddings@gmail.com
+Al Goddings
 
-javier.gonzalez-castillo@nih.gov
-
-t.holfstaedter@tz-juelid.de
+Javier Gonzalez
