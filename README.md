@@ -10,7 +10,7 @@ Damion Demeter, Oregon Health & Science University, demeter@ohsu.edu
 
 Kate Mills, Oregon Health & Science University, millska@ohsu.edu
 
-Glad
+Glad Mihai, University of Greifswald, Germany, paulglad.mihai@uni-greifswald.de
 
 Luka Ruzic
 
