@@ -18,7 +18,7 @@ Nick Ketz, Univesity of Colorado Boulder, USA, nick.ketz@gmail.com
 
 Andrew Reineberg, Univesity of Colorado Boulder, USA, andrew.reineberg@colorado.edu
 
-Marianne
+Marianne Reddan, University of Colorado, Boulder, USA, marianne.reddan@colorado.edu
 
 Al Goddings
 
