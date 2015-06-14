@@ -12,7 +12,7 @@ Kate Mills, Oregon Health & Science University, millska@ohsu.edu
 
 Glad Mihai, University of Greifswald, Germany, paulglad.mihai@uni-greifswald.de
 
-Luka Ruzic
+Luka Ruzic, Duke University, USA, luka.ruzic@duke.edu
 
 Nick Ketz, Univesity of Colorado Boulder, USA, nick.ketz@gmail.com
 
